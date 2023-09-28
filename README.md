@@ -1,2 +1,2 @@
 # WavesX
-n
+here's my python full stack learning journey🌟 
